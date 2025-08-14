@@ -19,7 +19,7 @@ Students were introduced to the college’s legacy through a detailed orientatio
 * Er. Ravinder Garg ~ Chief Engineer, Municipal Corporation, Ludhiana
 * Er. Rakesh Kumar ~ GNDEC Alumnus (Batch 1991), ADC Ludhiana
 The event concluded with a Vote of Thanks by Dr. K.S Maan.
-
+They all teach us how to spend our 4 years of B.Tech journey in this college with happiness and joyful. 
 📅 DAY 2 – 1 August 2025
 
 "From values to skills, the journey has just begun."
@@ -30,12 +30,12 @@ This day was all about exploring values and assessing skills.
 * Dr. Arvind Dhingra – Student development via STEP & TAC
 * Dr. Arashdeep Singh – "Food: A Pivotal Role in Student’s Overall Wellness"
 📝 English & Maths Proficiency Tests were conducted for all streams to assess foundational skills.
-💡 The Buddy4Study team guided students on various scholarship opportunities for first-year students. The day reinforced that education is not just about books — it’s about purpose, learning, and well-being. ✨
+💡 The Buddy4Study team guided students on various scholarship opportunities for first-year students. The day reinforced that education is not just about books — it’s about purpose, learning, and well-being. It is also a valuable day for us and helpful in our whole cource. ✨
 
 📅 DAY 3 – 2 August 2025
 
 "Inspiration, interaction, and introspection – all in one."
-* Dr. Jaswinder Singh (renowned for JaswinS Lab on Wheels)brought Physics & Maths to life with fun experiments and demonstrations.
+* Dr. Jaswinder Singh (renowned for JaswinS Lab on Wheels)brought Physics & Maths to life with fun experiments and demonstrations. I also learn many things from their social media channels in past years. 
 * Dr. Priya Darshni continued with "Universal Human Values - 1", enriching young minds with purpose.
 * Chief Guest: S. Gurcharan Singh Grewal (Secretary, SGPC)encouraged students with motivating words.
 💬 Interactive discussion sessions followed, where students reflected on their English & Maths test results.
@@ -62,7 +62,7 @@ Dr. Priya Darshani delivered an inspiring talk on "Universal Human Values - 2", 
 "Expect the unexpected – every day is a lesson."
 🖥️ 9:30 AM – 10:30 AM | P2P Lecture – TCC Seminar Hall
 
-Our seniors introduced C++ programming basics in a Peer-to-Peer session. It wasn’t just theory — it was a hands-on experience that sparked curiosity.
+Our seniors introduced C++ programming basics in a Peer-to-Peer session. It wasn’t just theory — it was a hands-on experience that sparked curiosity. I think this is very valuable lecture because they also share their experience with us. As they have passed this time where we are now. 
 ⚡ 10:30 AM – 11:30 AM | BEEE Lecture
 
 Prof. Simranjeet Kaur (ECE) shared the fundamentals of Basic Electrical and Electronics Engineering, blending theory with real-life applications.
@@ -75,7 +75,7 @@ Instead of the scheduled Mathematics class, we got a Physics lecture — a refre
 "Some sessions inspire, others… well, test your patience."
 🧮 9:30 AM – 10:30 AM | Mathematics Lecture – Mechanical Engg. Seminar Hall
 
-We were introduced to Desmos & GeoGebra — powerful tools for mathematical visualization. The session also included life lessonsbeyond academics.
+I am shocked to know about to Desmos & GeoGebra — powerful tools for mathematical visualization. The session also included life lessonsbeyond academics.
 ⚡ 10:30 AM – 11:30 AM | BEEE Lecture
 
 Prof. Simranjeet Kaur revisited electrical fundamentals, continuing the knowledge from earlier sessions.
@@ -105,7 +105,7 @@ Welcome to the detailed log of the seventh day of the B.Tech Orientation Program
 
 👨‍🏫 Speaker: Dr. Amrit Kamra (Incharge - DMC)
 
-The day began with an enlightening session by Dr. Amrit Kamra, the incharge of the Departmental Monitoring Committee (DMC). The lecture took place in the college auditorium. He guided the students about the importance of academic discipline, the role of DMC in maintaining standards, and how it supports students throughout their course duration.
+The day began with an enlightening session by Dr. Amrit Kamra, the incharge of the Departmental Monitoring Committee (DMC). The lecture took place in the college auditorium. He guided the students about the importance of academic discipline, the role of DMC in maintaining standards, and how it supports students throughout their course duration. I am very happy after this lecture because I an interested in videography and editing which is discussed in this lecture and I also make plan to join their club. 
 
 🕥 10:30 AM – 11:30 AM
 
@@ -149,4 +149,4 @@ The final session of the day was a Chemistry lecture by Professor Karan Bhalla.�
 
 ✅ Conclusion
 
-Overall, Day 7 of the orientation was structured, informative, and beneficial for all the new students. Each session contributed to understanding the academic culture, support systems, and opportunities offered at GNDEC.
+Overall, Day 7 of the orientation was structured, informative, and beneficial for all the new students. Each session contributed to understanding the academic culture, support systems, and opportunities offered at GNDEC. Many good personalities meet us and many new friends. This was a next level part of my life that I enjoyed the most. 
